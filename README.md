@@ -318,7 +318,7 @@ By improving risk control and portfolio balance, the bank can **increase profits
 📍 Data Analyst | Python | SQL | Power BI | Excel | Data Visualization  
 📬 [LinkedIn](https://www.linkedin.com/in/rishabh-bhati-16276a26b/) | 🔗[GitHub](https://github.com/rishabhbhati634)
 
-📧 [harshbelekar74@gmail.com](mailto:harshbelekar74@gmail.com)
+📧 [rishabhbhati478@gmail.com](mailto:rishabhbhati478@gmail.com)
 
 ---
 
